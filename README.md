@@ -1,1 +1,0 @@
-# gandhi-wibowo.github.io
